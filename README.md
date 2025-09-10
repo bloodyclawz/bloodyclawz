@@ -20,7 +20,7 @@
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Disabilities . Issues ༻♰
-  <p align="center"> . OSDD, Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Asthma, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety, ADHD, May or May not have Autism .
+  <p align="center"> . OSDD, Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Asthma, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety, ADHD, May or May not have Autism, Agere/Petre .
 
 <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
