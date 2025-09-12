@@ -1,11 +1,11 @@
 <p align="center">   ♰༺ Max's Intro ! ༻♰
   
- <p align="center"> . Heyo,, I'm Max! I'm a 19yo POC alternative goth / emo goth with an interesting personality at the best way to put it,, .
+ <p align="center"> . Heyo,, I'm Max! I'm a 19yo POC alternative goth / goth emo with an interesting personality at the best way to put it,, .
 
   <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
   
  <p align="center">  ♰༺ Other Names ༻♰
- <p align="center"> . Arlo . Maxxie . Oliver / Ollie .
+ <p align="center"> . Arlo . Max / Maxxie . Oliver / Ollie .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
