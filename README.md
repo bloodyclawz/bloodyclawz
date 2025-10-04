@@ -10,7 +10,7 @@
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Identities ༻♰
- <p align="center"> . Genderfluid . Trans FTM . Femboy . MLM . Hypersexual . Poly .
+ <p align="center"> . Genderfluid . Trans FTM . Femboy . MLM . Poly .
 
 <p align="center">  ─── ⋆⋅ ♰ ⋅⋆ ───
 
