@@ -5,7 +5,7 @@
   <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
   
  <p align="center">  ♰༺ Other Names ༻♰
- <p align="center"> . Arlo . Max / Maxxie . Oliver / Ollie .
+ <p align="center"> . Max / Maxxie . Oliver / Ollie . Arlo . Nocturne .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
@@ -35,7 +35,7 @@
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
  <p align="center"> ♰༺ DNI ༻♰
- <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies { Transformers }, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA }, Ztar/leech/.pursuerling and anyone that has to do w/ them unless you want to learn what hapened { An ex-psys of ours who SA'd our Medic. Ask on Disc if you wanna know more }, Deepsea Sys/Doll Disease/d3adblonde { DID/System faker that also fakes other symptoms/disorders and has done a lot of uncomfortable things and a bunch of other stuff. Ask on Disc for info }, CULTIST Satanists, IRLs, { MOST } DSMP enjoyers, Endos/Non traumagenic 'sys' and Pro-Endos, Spawnists / Spawn cult { terrible cult based off a backstory from the game Forsaken } .
+ <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies { Transformers }, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA }, Ztar/leech/.pursuerling and anyone that has to do w/ them unless you want to learn what happened { An ex-psys of ours who SA'd our Medic. Ask on Disc if you wanna know more }, Deepsea Sys/Doll Disease/d3adblonde { DID/System faker that also fakes other symptoms/disorders and has done a lot of uncomfortable things and a bunch of other stuff. Ask on Disc for info }, CULTIST Satanists, /srs IRLs, { MOST } DSMP enjoyers, Endos/Non traumagenic 'sys' and Pro-Endos, Spawnists / Spawn cult { terrible cult based off a backstory from the game Forsaken } .
 
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
