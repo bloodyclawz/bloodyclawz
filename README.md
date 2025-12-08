@@ -1,6 +1,6 @@
 <p align="center">   ♰༺ Max's Intro ! ༻♰
   
- <p align="center"> . Heyo,, I'm Max! I'm a 19yo POC scemoth with an interesting personality at the best way to put it,, .
+ <p align="center"> . Heyo,, I'm Max! I'm a 19yo POC Emo Goth with an interesting personality at the best way to put it,, .
 
   <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
   
