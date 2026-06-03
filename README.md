@@ -5,27 +5,27 @@
   <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
   
  <p align="center">  ♰༺ Other Names ༻♰
- <p align="center"> . Max / Maxxie . Oliver / Ollie . Arlo . Nocturne .
+ <p align="center"> . Max / Maxxie . Oliver / Ollie . Nocturne .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Identities ༻♰
- <p align="center"> . Genderfluid . Trans FTM . Femboy . MLM . Poly .
+ <p align="center"> . Androgynous . Femboy . MLM . Poly .
 
 <p align="center">  ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Pronouns ༻♰
- <p align="center"> . He . They .
+ <p align="center"> . He . Ze . Zer . Xae . Xaer
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Disabilities . Issues ༻♰
-  <p align="center"> . OSDD, Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Asthma, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety, ADHD, May or May not have Autism, Agere/Petre .
+  <p align="center"> . OSDD, Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Asthma, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety, ADHD, May have Autism/Be on the spectrum, Agere/Petre .
 
 <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Interests . Fandoms ༻♰
- <p align="center"> . Transformers, TF2, Dinosaurs, Roblox { GRACE, Forsaken, Pressure, etc }, MLP, Furry, Drawing, PonyTown, Lion Dances, Interview With The Vampire, Music, Jojo's, Madness Combat, Aesthetics { Goth/Pastel Goth/Gothic Lolita/etc, Vaporwave, Liminal Spaces, etc }, Pokemon, CoryxKenshin, YUB, Caddicarus, Markiplier, Epic The Musical, Cookie Run Kingdom, Demon Slayer, DBZ, Layze, Brave Police J-Decker, Metal Cardbot, Hellaverse, Date Everything!, MCU, DC, etc .
+ <p align="center"> . Transformers, TF2, Dinosaurs, Roblox { GRACE, Regretevator, etc }, MLP, Furry, Drawing, PonyTown, Lion Dances, Interview With The Vampire, Music, Jojo's, Madness Combat, Aesthetics { Goth etc, Vaporwave, Liminal Spaces, etc }, Pokemon, CoryxKenshin, YUB, Caddicarus, Markiplier, Epic The Musical, CRK, Demon Slayer, DBZ, Layze, Brave Police J-Deckert, Hellaverse, Date Everything!, MCU, DC, etc .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
