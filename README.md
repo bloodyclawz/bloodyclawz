@@ -15,7 +15,7 @@
 <p align="center">  ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Pronouns ༻♰
- <p align="center"> . He . Ze . Zer . Xae . Xaer
+ <p align="center"> . He . Ze . Zer . Xae . Xaer .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
@@ -30,12 +30,12 @@
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
  <p align="center"> ♰༺ INT ༻♰
- <p align="center"> . If you like any of the fandoms or such listed, pls int! as long as it doesn't conflict with our DNI!! Or if your a sys! We desperately need friends... { Previous statement does not affect systems, you can't control who you form/your source ! }
+ <p align="center"> . If you like any of the fandoms or such listed, pls int! as long as it doesn't conflict with our DNI!! Or if your a sys! We desperately need friends... { Previous statement does not affect systems, you can't control who you form/your source ! } .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
  <p align="center"> ♰༺ DNI ༻♰
- <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies { Transformers }, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA }, Ztar/leech/.pursuerling and anyone that has to do w/ them unless you want to learn what happened { An ex-psys of ours who SA'd our Medic. Ask on Disc if you wanna know more }, CULTIST Satanists, /srs IRLs, { MOST } DSMP enjoyers, Endos/Non traumagenic 'sys' and Pro-Endos, Spawnists / Spawn cult { terrible cult based off a backstory from the game Forsaken } . Crow/p1ss_ang3l { pro endo + endogenic }
+ <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies { Transformers }, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA }, Ztar/leech/.pursuerling and anyone that has to do w/ them unless you want to learn what happened { An ex-psys of ours who SA'd our Medic. Ask on Disc if you wanna know more }, CULTIST Satanists, /srs IRLs, { MOST } DSMP enjoyers, Endos/Non traumagenic 'sys' and Pro-Endos, Spawnists / Spawn cult { terrible cult based off a backstory from the game Forsaken } . Crow/p1ss_ang3l { pro endo + endogenic } .
 
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
