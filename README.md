@@ -25,7 +25,7 @@
 <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Interests . Fandoms ༻♰
- <p align="center"> . Transformers, TF2, Dinosaurs, Roblox { GRACE, Regretevator, etc }, MLP, Furry, Drawing, PonyTown, Lion Dances, Interview With The Vampire, Music, Jojo's, Madness Combat, Aesthetics { Goth etc, Vaporwave, Liminal Spaces, etc }, Pokemon, CoryxKenshin, YUB, Caddicarus, Markiplier, Epic The Musical, CRK, Demon Slayer, DBZ, Layze, Brave Police J-Deckert, Hellaverse, Date Everything!, MCU, DC, etc .
+ <p align="center"> . Transformers, TF2, Dinosaurs, Roblox { GRACE, Regretevator, etc }, MLP, Furry, Drawing, PonyTown, Lion Dances, Interview With The Vampire, Music, Jojo's, Madness Combat, Aesthetics { Goth etc, Vaporwave, Liminal Spaces, etc }, Pokemon, CoryxKenshin, YUB, Caddicarus, Markiplier, Epic The Musical, CRK, Demon Slayer, DBZ, Layze, Brave Police J-Decker, Hellaverse, Date Everything!, MCU, DC, etc .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
