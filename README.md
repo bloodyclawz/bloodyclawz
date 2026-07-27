@@ -1,21 +1,21 @@
-<p align="center">   ♰༺ Max's Intro ! ༻♰
+<p align="center">   ♰༺ NotTheFaker's Intro ! ༻♰
   
- <p align="center"> . Heyo,, I'm Max! I'm a 20yo POC Emo Goth with an interesting personality at the best way to put it,, .
+ <p align="center"> . NotTheFaker here. I'm a 20yo POC Emo Goth with an interesting personality at the best way to put it,, .
 
   <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
   
  <p align="center">  ♰༺ Other Names ༻♰
- <p align="center"> . Max / Maxxie . Oliver / Ollie . Nocturne .
+ <p align="center"> . Shadow/Shads . Dusky . Faker . Nocturne .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Identities ༻♰
- <p align="center"> . Androgynous . Femboy . MLM . Poly .
+ <p align="center"> . FTM . Bigender . Femboy . MLM . Poly .
 
 <p align="center">  ─── ⋆⋅ ♰ ⋅⋆ ───
 
   <p align="center"> ♰༺ Pronouns ༻♰
- <p align="center"> . He . Ze . Zer . Xae . Xaer .
+ <p align="center"> . He . Hem . She . They .
 
  <p align="center"> ─── ⋆⋅ ♰ ⋅⋆ ───
 
